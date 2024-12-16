@@ -1,4 +1,4 @@
-"Remember that sometimes not getting what you want is a wonderful stroke of luck." - Dalai lama
+"A poor man is not a man without money, but a man without ideas." - David ibiyeomie
 
 I am around
 <!---
